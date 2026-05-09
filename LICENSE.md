@@ -1,4 +1,4 @@
-
+Get the ultimate Asana for macOS plugin with Asana for macOS smart Plugin - collaboration and tags. Featuring collaboration and tags, it's the best choice for macOS users.
 
 
 
